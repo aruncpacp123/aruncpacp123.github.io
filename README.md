@@ -1,2 +1,1 @@
-
-https://aruncpacp123.github.io/new/
+https://aruncpacp123.github.io/
